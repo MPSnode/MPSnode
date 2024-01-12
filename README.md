@@ -17,6 +17,5 @@
 <img src='[https://randommeme-five.vercel.app/](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVRlkNnOdHOZUe-cnLu958EVbmkqtG_da5NucjhS7jV_4Bg1EBXbUpQHe7qrPE28LzQxQpAUPZUWba9wYOCuzbA-CyFhOR7iL3DgLZOOY83LNPZL0Tk3FpGdvR20TMtAukR38Hr5jzVLvG7VfNYtRgvyL7YO2PY4PNVz8sw_QHe5PtQBGldhxOb4k2czQs/s1600/99C38EB3-6D0C-48BD-A85E-25814CFA1B8C.jpeg)https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVRlkNnOdHOZUe-cnLu958EVbmkqtG_da5NucjhS7jV_4Bg1EBXbUpQHe7qrPE28LzQxQpAUPZUWba9wYOCuzbA-CyFhOR7iL3DgLZOOY83LNPZL0Tk3FpGdvR20TMtAukR38Hr5jzVLvG7VfNYtRgvyL7YO2PY4PNVz8sw_QHe5PtQBGldhxOb4k2czQs/s1600/99C38EB3-6D0C-48BD-A85E-25814CFA1B8C.jpeg' style="height: 400px;"/>
 
 ---
-[![](https://visitcount.itsvg.in/api?id=MPS1310&icon=5&color=12)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
